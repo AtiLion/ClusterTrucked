@@ -1,2 +1,2 @@
 # ClusterTrucked
-Clustertruck cheat ;D
+Clustertruck cheat/hack I made real quick
